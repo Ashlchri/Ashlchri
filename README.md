@@ -1,4 +1,1 @@
-- 👋 Hi, I’m @Ashlchri
-- 👀 I’m interested in coding and animation
-- 🌱 I’m currently learning ...coding and animation (+ illustration!)
-- 📫 How to reach me: via Discord, venus#2729
+L
